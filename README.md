@@ -1,4 +1,4 @@
-### Just Tech, Just Vibes
+### echo in an empty server room
 
 ## 🌐 Socials
 [Instagram](https://instagram.com/Wrldhatewiknon_) | [X/Twitter](https://x.com/Wiknonke)
