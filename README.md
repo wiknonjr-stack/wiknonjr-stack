@@ -1,4 +1,3 @@
-# Hi there 👋 I am wiknonjr stack
 ### Just Tech, Just Vibes
 
 ## 🌐 Socials
